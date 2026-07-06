@@ -1,4 +1,4 @@
-# 
+# حصرية Kaspersky Total Security إضافات لـ Mac OS | توربو Kaspersky Total Security إضافات لـ PC Windows. مع تشفير من مستوى عسكري و دعم سطر الأوامر — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
